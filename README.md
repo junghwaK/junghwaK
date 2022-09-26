@@ -36,4 +36,3 @@ Here are some ideas to get you started:
 
 Blog : https://cutiefish.tistory.com/  
 
-Notion : https://delicious-hickory-792.notion.site/HELLO-56b3e40522fa410d86e993ff0807f778  
